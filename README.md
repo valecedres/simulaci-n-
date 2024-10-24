@@ -1,0 +1,2 @@
+# simulaci-n-
+parcial dos 
